@@ -1,3 +1,12 @@
 Bob and Carol coding away 
 
-Bob made a big mistake and did not pull from the master. 
+Ted fixed it!
+
+Bob and Carol
+What do you call the Sun when it is pretending to be someone its not?
+
+An Impostar!!!
+
+What do you call an aligator in a vest?
+
+An investigator!
