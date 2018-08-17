@@ -1,3 +1,7 @@
+Bob and Carol coding away 
+
+Ted fixed it!
+
 Bob and Carol
 What do you call the Sun when it is pretending to be someone its not?
 
